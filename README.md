@@ -45,7 +45,7 @@ Explore where AI could help your business, with no cost and no obligation. We wi
 
 - **Email:** [Aravind@tycheai.in](mailto:Aravind@tycheai.in)
 - **Phone / WhatsApp:** [+91 98400 57282](https://wa.me/919840057282)
-- **Office:** Rosy Towers, Nungambakkam High Road, Chennai, Tamil Nadu 600034, India
+- **Office:** Rosy Towers, Nungambakkam High Road(Opp to Ranjith Hotel, Chennai, Tamil Nadu 600034, India
 
 ## Careers
 
